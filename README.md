@@ -1,4 +1,5 @@
-- 👋 Hi, I’m @Rumich977
+- 👋 Hi, I’m @Rumich977 у меня есть теллеграмм канал @rumi5570
+- и еще ютуб канал Rumich, и тикток rumka_mi
 - 👀 I’m interested in ...Мне нравится рисование, пони таун/бравл старс/я обожаю играть
 - 🌱 I’m currently learning ...всё нормально
 - 💞️ I’m looking to collaborate on ...
